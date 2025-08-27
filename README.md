@@ -1,4 +1,4 @@
-hi my name is danny ... i am eighteen, i am autistic, pronouns are he/him, i also like mirrored pronouns ... (you refer to me as your own pronouns)
+hi my name is danny ... i am eighteen, i am autistic, pronouns are he/him, i also like mirrored pronouns ... (you refer to me as your own pronouns) i am isfp 7w8
 i like many things ... i love horuss zahhak and dirk strider, i kin dirk a lot . i like talking too
 
 morgan is my moirail and i love my friends
